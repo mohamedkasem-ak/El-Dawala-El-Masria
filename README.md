@@ -1,1 +1,1 @@
-Hena ana bashtim el dawalah el masria le wasakhitaha ma3a el asrin, we bsar7a e7na 2erfena menhom.
+Hina ana bashtim el dawalah el masria le weskhah ma3a el masrin, we bsara7a 2e7na 2erfena menhom.
